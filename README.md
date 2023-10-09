@@ -14,7 +14,7 @@
  </div>
  
 
- ![20230930_140426](https://github.com/BeatrizFlores23/BeatrizFlores/assets/145884902/829b9b27-eee0-47b0-b25e-2c1a0322b602)
+![MelRibeiro - Overview](https://github.com/BeatrizFlores23/BeatrizFlores23/assets/145884902/7f4c4245-bee4-4994-891a-7988484fd8b4)
 
 
 
