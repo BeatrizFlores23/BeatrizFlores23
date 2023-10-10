@@ -14,7 +14,8 @@
  </div>
  
 
-![MelRibeiro - Overview](https://github.com/BeatrizFlores23/BeatrizFlores23/assets/145884902/7f4c4245-bee4-4994-891a-7988484fd8b4)
+![Cyberpunk Aesthetic](https://github.com/BeatrizFlores23/BeatrizFlores23/assets/145884902/74f49184-bf9a-435d-8e85-4d00c8cab671)
+
 
 
 
